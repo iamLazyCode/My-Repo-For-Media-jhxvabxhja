@@ -6,4 +6,3 @@ _______
 
 ________
 
-![img](https://slink.ydvaditya.com/image/ba22ffa3-5982-4117-be54-75efe8626336.png)
